@@ -1,4 +1,4 @@
-raquelboechat.com
+raquelboechat.net
 =======================
 
 Raquel Boechat Comunicações website
